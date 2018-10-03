@@ -1,2 +1,0 @@
-# jamesdeocariza.com
-James Deocariza 
